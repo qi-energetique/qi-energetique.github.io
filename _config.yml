@@ -1,0 +1,11 @@
+title: Enseignement des Techniques Energétiques Chinoises
+email: lionel.catan at gmail.com
+description: Enseignement des Techniques Energétiques Chinoises
+baseurl: "" # the subpath of your site, e.g. /blog
+url: http://qi-energetique.fr
+keywords: médecine,traditionnelle,chinoise,qi gong,qi,gong,qigong,posturologie,massothérapie,massages,chinois
+github_username: qi-energetique
+
+# Build settings
+markdown: kramdown
+

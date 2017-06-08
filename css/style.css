@@ -1,0 +1,134 @@
+/*
+ * Général
+ */
+
+body
+{
+    color: DarkRed;
+    background-color: Ivory ;
+    /*background: url(beige035.gif) repeat;*/
+    margin: 0;
+    padding: 0;
+}
+
+a 
+{
+    text-decoration:none;
+}
+
+a:hover 
+{
+    text-decoration: underline;
+}
+
+h1
+{
+    text-align:center;
+    font-size: x-large;
+}
+
+h2
+{
+    text-align:center;
+    font-size: large;
+    margin: 0;
+}
+
+/*
+ * Balises définies par SPIP
+ */
+ 
+.spip
+{
+    font-style: oblique;
+}
+
+p.spip
+{
+    text-align: justify;
+}
+
+/*
+ * Titre
+ */
+
+#titre
+{
+    text-align: center;
+    font-size: xx-large;
+    font-weight: bold;
+    color: black;
+    margin: 10px 10px 0 10px;
+    background: url(/image/taiji.png) no-repeat;
+    filter: progid:DXImageTransform.Microsoft.AlphaImageLoader(src='/image/taiji.png', sizingMethod='crop');
+    height: 100px;
+    padding-left: 100px;
+    padding-top: 20px;
+}
+
+
+/*
+ * Menu
+ */
+
+#menu ul
+{
+    padding: 0;
+    margin: 0 0 10px 0;
+    background-color: DarkRed;
+    color: Ivory;
+    float: left;
+    width: 100%;
+    font-family: arial, helvetica, sans-serif;
+}
+
+#menu ul li 
+{ 
+    display: inline;
+ }
+
+#menu ul li a
+{
+    padding: 0.2em 1em;
+    background-color: DarkRed;
+    color: Ivory;
+    text-decoration: none;
+    float: left;
+    border-right: 1px solid Ivory;
+}
+
+#menu ul li a:hover
+{
+    background-color: Brown;
+    color: Ivory;
+}
+
+/* 
+ * Corps
+ */
+
+#corps
+{
+    clear:both;
+}
+
+/*
+ * Texte
+ */
+
+#texte
+{
+    margin:10px;
+    padding:10px;
+}
+
+/*
+ * Documents
+ */
+
+.doc { text-align: center; }
+.doc img { border: 0; }
+.doc_left { float: left; margin: 3px 15px 0px 0px; }
+.doc_right { float: right; margin: 3px 0px 0px 15px; }
+.doc_titre { font-weight: bold; font-size: 0.7em; margin:auto }
+
