@@ -37,7 +37,7 @@ ____
 ### *Programme* ###
 
 
-#### *1<sup>er</sup> séminaire des 14 et 15 novembre 2015* ####
+#### *Premier séminaire des 14 et 15 novembre 2015* ####
 
 - Introduction et panorama de la posturologie
 - Physiologie et organisation du système tonique postural
@@ -46,32 +46,32 @@ ____
 - **Approche traditionnelle chinoise de la posturologie**
 - Etude théorique et pratique du **dérèglement du capteur dentaire**
 
-#### *2<sup>ème</sup> séminaire des 19 et 20 décembre 2015* ####
+#### *Deuxième séminaire des 19 et 20 décembre 2015* ####
 
 - Synthèse théorique et pratique du premier séminaire
 - Etude théorique et pratique du **dérèglement des capteurs oculaire et cutané**
 - Etude théorique et pratique des **déséquilibres émotionnel et hémisphérique**
 
-#### *3<sup>ème</sup> séminaire des 6 et 7 février 2016* ####
+#### *Troisième séminaire des 6 et 7 février 2016* ####
 
 - Synthèse théorique et pratique du deuxième séminaire
 - **Approche ostéopathique cranio-sacrée de la posturologie**
 - Etude théorique et pratique des **capteurs rachidien et périphérique**
 
-#### *4<sup>ème</sup> séminaire des 9 et 10 avril 2016* ####
+#### *Quatrième séminaire des 9 et 10 avril 2016* ####
 
 - Synthèse théorique et pratique du troisième séminaire
 - Etude théorique et pratique des **capteurs auriculaire et podal**
 - **Etude théorique et pratique des zones posturales diagnostiques et thérapeutiques :leur stimulation magnétique**
 
-#### *5<sup>ème</sup> séminaire des 4 et 5 juin 2016* ####
+#### *Cinquième séminaire des 4 et 5 juin 2016* ####
 
 - Synthèse théorique et pratique du quatrième séminaire
 - **Pratique diagnostique et thérapeutique des déséquilibres posturaux**
 - Techniques thérapeutiques de la **reprogrammation posturale** (première partie)
 - Indications et traitements posturaux spécifiques (déséquilibres des capteurs rachidien, périphérique, dentaire, oculaire, auriculaire, podal, cutané,… reprogrammation posturale globale)
 
-#### *6<sup>ème</sup> séminaire des 9 et 10 octobre 2016* ####
+#### *Sixième séminaire des 9 et 10 octobre 2016* ####
 
 - Synthèse théorique et pratique du cinquième séminaire 
 - **Pratique diagnostique et thérapeutique des déséquilibres posturaux**
