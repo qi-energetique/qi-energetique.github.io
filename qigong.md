@@ -51,30 +51,30 @@ Ce QI GONG demande un apprentissage rigoureux, tant sur le plan théorique que s
 
 Les cours hebdomadaires de QI GONG se dérouleront Résidence Philippe  LEBON, 13 Place Philippe Lebon (coursive de droite) – 59000 – LILLE, les mardi et jeudi de 19H30 à 20h30 heures (les cours durant les vacances scolaires ne sont pas tous assurés).
 
-**Les cours débuteront le 27 septembre 2016 et se termineront le 29 juin 2017.**
+**Les cours débuteront le 3 octobre 2017 et se termineront le 28 juin 2018.**
 
 Les 2 premiers cours feront office de portes ouvertes.
  
 **Programme du mardi**  (Lionel et Annie Catanzariti):
 
-- 1ère partie : les 8 trésors.
-- 2ème partie : le Qi Gong des 18 facettes.
+- 1ère partie : le Qi Gong général d'ouverture et l'éveil du Qi.
+- 2ème partie : le Qi Gong de l'appareil locomoteur et de la structure corporelle. Le Taiji Qi Gong.
 
 **Programme du jeudi** (Lionel et Annie Catanzariti) :
 
-- 1ère partie : les 8 trésors.
-- 2ème partie : le Qi Gong du Mont Taoïste Wu Dong
+- 1ère partie : le Qi Gong général d'ouverture et l'éveil du Qi.
+- 2ème partie : le Zhineng Qi Gong No 1. Le Yangsheng Qi Gong.
 
 #### *Séminaires de QI GONG* ####
 
-- 1er séminaire : Le Qi Gong pulmonaire en musique.  
-les samedi 14 et dimanche 15 janvier 2017
+- 1er séminaire : Le Qi Gong de prévention et de traitement des maladies chroniques et des cancers.
+les samedi 25 et dimanche 26 novembre 2017
 
-- 2ème séminaire : Le Qi Gong d'équilibration mentale, d'harmonisation spirituelle et de maîtrise des émotions.  
-les samedi 18 et dimanche 19 mars 2017
+- 2ème séminaire : Le Qi Gong d'équilibration de l'appareil digestif, du métabolisme de la nutrition, de la Rate-Pancréas et de l'Estomac.
+les samedi 27 et dimanche 28 janvier 2018
 
-- 3ème séminaire : Le Qi Gong de prévention et de traitement des maladies chroniques et des cancers.  
-les samedi 13 et dimanche 14 mai 2017
+- 3ème séminaire : Le Qi Gong de prévention et de traitement des maladies cardio-vasculaires. Le Qi-Gong cardio-vasculaire en musique.
+les samedi 7 et dimanche 8 avril 2018
 
 ### *Participation* ###
 
