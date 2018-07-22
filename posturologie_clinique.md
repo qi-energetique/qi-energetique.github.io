@@ -36,46 +36,80 @@ ____
 
 ### *Programme* ###
 
+**L’enseignement se déroulera le samedi de 9h30 à 13h et de 14h30 à 18h30, en six séminaires**
 
-#### *Premier séminaire des 14 et 15 novembre 2015* ####
+#### *Premier séminaire du samedi 17 novembre 2018* ####
 
-- Introduction et panorama de la posturologie
-- Physiologie et organisation du système tonique postural
-- Physio-pathologie des déséquilibres posturaux
-- Etude théorique et pratique du **bilan postural global**
-- **Approche traditionnelle chinoise de la posturologie**
-- Etude théorique et pratique du **dérèglement du capteur dentaire**
+Etude du Système Postural et des Hémisphères Cérébraux
 
-#### *Deuxième séminaire des 19 et 20 décembre 2015* ####
+**A. Vue d’ensemble du Système Postural et des déséquilibres de la posture corporelle**
+1. Organisation et Physiologie du Système Postural Global occidental et en MTC
+2. La symptomatologie clinique subjective et objective des déséquilibres posturaux : Le
+bilan postural morphostatique et les tests révélateurs énergétiques des dérèglements des
+Capteurs Posturaux
+3. Causes et physiopathoĺogie des déséquilibres posturaux en Occident et MTC
+4. Les traitements des déséquilibres posturaux en Occident et en MTC
 
-- Synthèse théorique et pratique du premier séminaire
-- Etude théorique et pratique du **dérèglement des capteurs oculaire et cutané**
-- Etude théorique et pratique des **déséquilibres émotionnel et hémisphérique**
+**B. Les hémisphères cérébraux et le Système postural**
+1. Dominance hémisphérique cérébrale et coordination des hémisphères cérébraux
+2. Le dérèglement interhémisphérique cérébral:dyslatéralités cérébrale et générale
+4. Les manifestations cliniques du dérèglement de la coordination des 2 hémisphères cérébraux.
+5. Le retentissement des dérèglements hémisphériques cérébraux sur le Système Postural Global
+6. Le bilan clinique des dérèglements de la coordination entre les 2 hémisphères
 
-#### *Troisième séminaire des 6 et 7 février 2016* ####
+#### *Deuxième séminaire du samedi 15 décembre 2018* ####
 
-- Synthèse théorique et pratique du deuxième séminaire
-- **Approche ostéopathique cranio-sacrée de la posturologie**
-- Etude théorique et pratique des **capteurs rachidien et périphérique**
+Etude des Capteurs Posturaux contrôlés par le Foie et la
+Vésicule Biliaire.
 
-#### *Quatrième séminaire des 9 et 10 avril 2016* ####
+Pour chaque Capteur Postural seront envisagés :
+1. La Physiologie du Capteur
+2. Les causes du dérèglement du Capteur
+3. Le bilan clinique du dérèglement du Capteur  
+4. Les centres énergétiques d'équilibration du Capteur  
+A. Le Capteur Postural Oculaire  
+B. Le Capteur Postural Vestibulaire  
+C. Le Capteur Postural Musculo-tendino-articulaire
 
-- Synthèse théorique et pratique du troisième séminaire
-- Etude théorique et pratique des **capteurs auriculaire et podal**
-- **Etude théorique et pratique des zones posturales diagnostiques et thérapeutiques :leur stimulation magnétique**
+#### *Troisième séminaire du samedi 12 janvier 2019* ####
 
-#### *Cinquième séminaire des 4 et 5 juin 2016* ####
+Etudes
+1. du Capteur Postural Dentaire contrôlé par la Rate-Pancréas et l’Estomac
+2. du Capteur Postural Émotionnel contrôlé par le Coeur
+3. du Capteur Postural Cutané contrôlé par le Poumon
 
-- Synthèse théorique et pratique du quatrième séminaire
-- **Pratique diagnostique et thérapeutique des déséquilibres posturaux**
-- Techniques thérapeutiques de la **reprogrammation posturale** (première partie)
-- Indications et traitements posturaux spécifiques (déséquilibres des capteurs rachidien, périphérique, dentaire, oculaire, auriculaire, podal, cutané,… reprogrammation posturale globale)
+Pour chaque capteur postural seront envisagés :La physiologie, les causes des dérèglements, la clinique et les centres énergétiques des dérèglements.
 
-#### *Sixième séminaire des 9 et 10 octobre 2016* ####
+A. Le Capteur Postural Dentaire  
+B. Le Capteur Postural Émotionnel  
+C. Le Capteur Postural Cutané  
 
-- Synthèse théorique et pratique du cinquième séminaire 
-- **Pratique diagnostique et thérapeutique des déséquilibres posturaux**
-- Techniques thérapeutiques de la **reprogrammation posturale** (deuxième partie)
+#### *Quatrième séminaire du samedi 2 mars 2019* ####
+
+Etude des Capteurs Posturaux contrôlés par le Rein et la Vessie
+Pour chaque capteur seront envisagés :La physiologie, les causes des dérèglements, la clinique et les centres énergétiques des dérèglements
+
+#### *Cinquième séminaire du samedi 11 mai 2019* ####
+
+La reprogrammation énergétique posturale globale et la pratique posturale(1ere partie)
+
+1. L’ensemble des manifestations cliniques des dérèglements de la posture corporelle
+2. Le Bilan Diagnostique Postural Global  
+A. Les outils diagnostiques physiques et mentaux:de la pensée à la visualisation, de la concentration à la perception au mouvement(Le système PVCP)  
+B. Le Bilan diagnostique Postural Morphostatique Global  
+C. Le Bilan diagnostique de "débrouillage Postural" des principaux Capteurs  
+D. Le Bilan diagnostique Postural Spécifique : tests révélateurs, tests de neutralisations indirecte par stimulation des centres posturaux et directe sur les Capteurs.  
+3. Le traitement des dérèglements de la posture corporelle  
+A. Les outils thérapeutiques: stimulation des centres énergétiques par pastilles magnétiques, par massages et automassages; exercices de Qi Gong; équilibration occlusale, podale, oculaire; rééducation posturale oculo-cervicale et vestibulaire.  
+B. La technique du "pas à pas" postural diagnostique et therapeutique.
+
+#### *Sixième séminaire du samedi 22 juin 2019* ####
+
+La reprogrammation énergétique posturale globale et la pratique posturale (2ème partie)
+
+1. Entraînement à la stimulation magnétique acupuncturale et massages chinois
+2. Les cas cliniques simples et complexes
+3. Les difficultés rencontrées dans la reprogrammation posturale globale
 
 ### *Inscription* ###
 
