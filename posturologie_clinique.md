@@ -36,7 +36,7 @@ ____
 
 ### *Programme* ###
 
-**L’enseignement se déroulera le samedi de 9h30 à 13h et de 14h30 à 18h30,en six séminaires**
+**L’enseignement se déroulera le samedi de 9h30 à 13h et de 14h30 à 18h30, en six séminaires**
 
 #### *Premier séminaire du samedi 17 novembre 2018* ####
 
@@ -93,16 +93,15 @@ Pour chaque capteur seront envisagés :La physiologie, les causes des dérèglem
 
 La reprogrammation énergétique posturale globale et la pratique posturale(1ere partie)
 
-A. L’ensemble des manifestations cliniques des dérèglements de la posture corporelle  
-B. Le Bilan Diagnostique Postural Global  
-1. Les outils diagnostiques physiques et mentaux:de la pensée à la visualisation, de la
-concentration à la perception au mouvement(Le système PVCP)  
-2. Le Bilan diagnostique Postural Morphostatique Global  
-3. Le Bilan diagnostique de "débrouillage Postural" des principaux Capteurs  
-4. Le Bilan diagnostique Postural Spécifique : tests révélateurs, tests de neutralisations indirecte par stimulation des centres posturaux et directe sur les Capteurs.
-C. Le traitement des dérèglements de la posture corporelle  
-1. Les outils thérapeutiques: stimulation des centres énergétiques par pastilles magnétiques, par massages et automassages; exercices de Qi Gong; équilibration occlusale, podale, oculaire; rééducation posturale oculo-cervicale et vestibulaire.  
-2. La technique du "pas à pas" postural diagnostique et therapeutique.
+1. L’ensemble des manifestations cliniques des dérèglements de la posture corporelle
+2. Le Bilan Diagnostique Postural Global  
+A. Les outils diagnostiques physiques et mentaux:de la pensée à la visualisation, de la concentration à la perception au mouvement(Le système PVCP)  
+B. Le Bilan diagnostique Postural Morphostatique Global  
+C. Le Bilan diagnostique de "débrouillage Postural" des principaux Capteurs  
+D. Le Bilan diagnostique Postural Spécifique : tests révélateurs, tests de neutralisations indirecte par stimulation des centres posturaux et directe sur les Capteurs.  
+3. Le traitement des dérèglements de la posture corporelle  
+A. Les outils thérapeutiques: stimulation des centres énergétiques par pastilles magnétiques, par massages et automassages; exercices de Qi Gong; équilibration occlusale, podale, oculaire; rééducation posturale oculo-cervicale et vestibulaire.  
+B. La technique du "pas à pas" postural diagnostique et therapeutique.
 
 #### *Sixième séminaire du samedi 22 juin 2019* ####
 
