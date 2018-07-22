@@ -49,41 +49,34 @@ Ce QI GONG demande un apprentissage rigoureux, tant sur le plan théorique que s
 
 #### *Cours hebdomadaires* ####
 
-Les cours hebdomadaires de QI GONG se dérouleront Résidence Philippe  LEBON, 13 Place Philippe Lebon (coursive de droite) – 59000 – LILLE, les mardi et jeudi de 19H30 à 20h30 heures (les cours durant les vacances scolaires ne sont pas tous assurés).
+Les cours hebdomadaires de Qi Gong se dérouleront Résidence Philippe  LEBON, 13 Place Philippe Lebon (coursive de droite) – 59000 – LILLE, les mardi et jeudi de 19h à 20h30 heures (les cours durant les vacances scolaires ne sont pas tous assurés).
 
-**Les cours débuteront le 3 octobre 2017 et se termineront le 28 juin 2018.**
+**Les cours débuteront le mardi 2 octobre 2018 et se termineront le 25 juin 2019.**
 
-Les 2 premiers cours feront office de portes ouvertes.
- 
-**Programme du mardi**  (Lionel et Annie Catanzariti):
+**Programme des cours hebdomadaires du mardi**
+1. Le Qi Gong général d'ouverture et d'éveil du Qi
+2. Les 8 Trésors, les Ba Duan Jin et les marches Qi Gong
+3. Le Qi Gong Bouddhiste des « Mille mains Sacrées » jusque mi-mars 2019  
+Puis, le Qi Gong locomoteur des « Dix Huits Facettes » de mi mars à fin juin 2019.
 
-- 1ère partie : le Qi Gong général d'ouverture et l'éveil du Qi.
-- 2ème partie : le Qi Gong de l'appareil locomoteur et de la structure corporelle. Le Taiji Qi Gong.
-
-**Programme du jeudi** (Lionel et Annie Catanzariti) :
-
-- 1ère partie : le Qi Gong général d'ouverture et l'éveil du Qi.
-- 2ème partie : le Zhineng Qi Gong No 1. Le Yangsheng Qi Gong.
-
-#### *Séminaires de QI GONG* ####
-
-- 1er séminaire : Le Qi Gong de prévention et de traitement des maladies chroniques et des cancers.
-les samedi 25 et dimanche 26 novembre 2017
-
-- 2ème séminaire : Le Qi Gong d'équilibration de l'appareil digestif, du métabolisme de la nutrition, de la Rate-Pancréas et de l'Estomac.
-les samedi 27 et dimanche 28 janvier 2018
-
-- 3ème séminaire : Le Qi Gong de prévention et de traitement des maladies cardio-vasculaires. Le Qi-Gong cardio-vasculaire en musique.
-les samedi 7 et dimanche 8 avril 2018
+### *Séminaires de Qi Gong* ###
+- **1er séminaire : Le 1er décembre 2018** : Le Qi Gong d’équilibration Pulmonaire en musique
+- **2ème séminaire : Le 2 février 2019** : Le Qi Gong d’équilibration du Foie
+- **3ème séminaire : Le 23 mars 2019** : Le Qi Gong d’équilibration de la Rate-Pancréas
+- **4ème séminaire : Le 27 avril 2019** : Le Qi Gong d’équilibration du Rein Shen
+- **5ème séminaire : Le 15 juin 2019** : Le Qi Gong d’équilibration Cardio-vasculaires en musique
 
 ### *Participation* ###
 
-1. Cours hebdomadaires de QI GONG seuls : **300 euros** pour l’année
-2. Séminaires d’Enseignement du QI GONG :
-- Un seul séminaire                   : **120 euros**
-- Deux séminaires                     : **220 euros**
-- Trois séminaires                    : **300 euros**
-3. L’ensemble des cours hebdomadaires et des 3 séminaires de QI GONG : **580 euros**
+1. **Cours hebdomadaires de Qi Gong + 1 séminaire = 300 euros** pour l’année universitaire  
+Les personnes cotisant aux cours hebdomadaires peuvent participer aux 4 autres séminaires aux
+conditions suivantes : **80 euros par séminaire ou 280 euros les 4 séminaires**.
+2. Séminaires d'enseignement de Qi Gong uniquement :  
+**1 séminaire = 90 euros  
+2 séminaires = 170 euros  
+3 séminaires = 240 euros  
+4 séminaires = 300 euros  
+5 séminaires = 360 euros**  
 
 ### *Inscription* ###
 
