@@ -71,6 +71,7 @@ Puis, le Qi Gong locomoteur des « Dix Huits Facettes » de mi mars à fin juin 
 1. **Cours hebdomadaires de Qi Gong + 1 séminaire = 300 euros** pour l’année universitaire  
 Les personnes cotisant aux cours hebdomadaires peuvent participer aux 4 autres séminaires aux
 conditions suivantes : **80 euros par séminaire ou 280 euros les 4 séminaires**.
+
 2. Séminaires d'enseignement de Qi Gong uniquement :  
 **1 séminaire = 90 euros  
 2 séminaires = 170 euros  
