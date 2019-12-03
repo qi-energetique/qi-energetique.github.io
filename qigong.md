@@ -54,11 +54,6 @@ Le Rein (Racine du Yin et du Yang) contrôle la nutrition et le fonctionnement d
 
 ### *Participation à l'enseignement du Qi Gong des cinq organes Yin les Zang* ###
 
-1. **Cours hebdomadaires de Qi Gong + 1 séminaire = 300 euros** pour l’année universitaire  
-Les personnes cotisant aux cours hebdomadaires peuvent participer aux 4 autres séminaires aux
-conditions suivantes : **80 euros par séminaire ou 280 euros les 4 séminaires**.
-
-2. Séminaires d'enseignement de Qi Gong uniquement :  
 **1 séminaire = 90 euros  
 2 séminaires = 170 euros  
 3 séminaires = 240 euros  
