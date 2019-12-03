@@ -27,46 +27,32 @@ La pratique régulière du **QI GONG** permet d’harmoniser le **YIN** et le **
 
 ***
 
-### *QI GONG de prévention et de traitement des maladies chroniques et des cancers* ###
+### *Programme des cinq séminaires de Qi Gong 2019-20* ###
 
-Le QI GONG de prévention et de traitement des maladies chroniques et des cancers est un QI GONG d’action générale, tant au niveau externe (peau, appareil locomoteur,…) qu’au niveau interne (système neuro-endocrinien, appareil cardio-vasculaire et circulatoire, appareil digestif, appareil génito-urinaire, dérèglements émotionnels,…). En effet, il permet de renforcer et d’équilibrer l’ensemble des ZANG FU (les entités énergétiques viscérales et leurs canaux-méridiens draineurs des souffles : sphères d’influence cutanée, musculo-tendineuse, ostéo-articulaire, viscérale, psychique,…).
+Ces séminaires vont permettre d'équilibrer les Cinq Organes Énergétiques Fondamentaux intervenant dans le fonctionnement physiologique de tout l'organisme ,du Corps et de l'Esprit, organes qu'il faut considérer comme des Cerveaux Énergétiques Viscéraux en liaison permanente avec le Cerveau Central Céphalique et l'ensemble des structures corporelles (os, muscles, tendons, articulations, vaisseaux, nerfs, viscères...).
+Chaque Qi Gong comportera : une ouverture et un éveil de l'Énergie, un enchaînement avec automassages, postures, techniques respiratoires, exercices corporels, marches-Qi Gong et fermeture de maintien de l'équilibre énergétique.  
 
-Ce QI GONG permet de lever les « blocages » et les stagnations dans la circulation de l’énergie, du sang et des liquides, responsables de pathologies chroniques et de cancers. Il s’agit d’une thérapeutique complémentaire des traitements classiques occidentaux (chimiothérapie, chirurgie, radiothérapie et traitements spécifiques, selon l’atteinte pathologique,…). Il comporte un grand nombre de techniques, qu’il est nécessaire de pratiquer en fonction de la pathologie et, surtout, du stade évolutif des maladies et des thérapeutiques associées, parmi lesquelles :
+#### *PREMIER SÉMINAIRE Samedi 19 Octobre 2019 : Qi Gong d'équilibration du Foie Gan.* ####
 
-- Automassages d’équilibration
-- Postures de captation et d’équilibration du QI
-- Techniques respiratoires d’absorption de l’énergie pure et de rejet de l’énergie usée, impure
-- Techniques de protection et d’autorégulation
-- Techniques de détoxication, de dépollution, d’élimination (respiratoire, alimentaire et digestive, électromagnétique, électrostatique, micro-galvanique, climatique,…).
-- Techniques de détente et de méditation
-- Enchaînements de mouvements d’action générale et spécifique
-- Marches thérapeutiques à action générale et spécifique.
+Le Foie est chargé de l'équilibre et de l'harmonie du Corps et de l'Esprit, en particulier de la répartition harmonieuse des émotions non refoulées; il est garant de la paix intérieure et extérieure de l'organisme. Il contrôle tous les mouvements extérieurs et intérieurs, en particulier ceux des muscles (tonus et motricité), des articulations et du système nerveux (électricité nerveuse cérébrale en particulier). Il doit maîtriser la contrariété et la colère. 
 
-Ce QI GONG demande un apprentissage rigoureux, tant sur le plan théorique que sur le plan pratique, pour obtenir l’efficacité thérapeutique maximale. Il est donc nécessaire d’envisager trois séminaires, pour l’apprendre dans sa totalité, le but essentiel de ces techniques étant d’arriver à l’apaisement de l’esprit et à l’oubli de soi-même, afin d’obtenir le calme interne et externe nécessaire à l’équilibration et à l’harmonisation de l’énergie subtile et condensée.
+#### *DEUXIÈME SÉMINAIRE Samedi 16 Novembre 2019 : Qi Gong musical du Coeur Xin* ####
 
-***
-### *Programme* ###
+Le Coeur contrôle le fonctionnement cardiaque et vasculaire, ainsi que la circulation du Sang à travers tout l'organisme. Il est "Maître du mental et des émotions, le Soleil et l'Empereur de l'Être Humain". Il coordonne les Esprits Viscéraux enracinés dans chacun des 5 Cerveaux Viscéraux, reçoit, intègre et analyse toutes nos émotions qui seront ensuite réparties par le Foie. Il doit maîtriser la Joie pathologique exubérante excitatrice extérieure et l'excès de désirs. 
 
-#### *Cours hebdomadaires* ####
+#### *TROISIÈME SÉMINAIRE Samedi 11 Janvier 2020 : Qi Gong d'équilibration de la Rate Pi* ####
 
-Les cours hebdomadaires de Qi Gong se dérouleront Résidence Philippe  LEBON, 13 Place Philippe Lebon (coursive de droite) – 59000 – LILLE, les mardi et jeudi de 19h à 20h30 heures (les cours durant les vacances scolaires ne sont pas tous assurés).
+La Rate-Pancréas commande l'Appareil Digestif et les muscles de tout le corps, en particulier des quatre membres. Elle est chargée de distribuer l'Essence Pure des Aliments au niveau de tout l'organisme (Cerveau, Organes des sens, muscles, viscères). Elle contrôle l'Intellect, la mémoire de travail et la Pensée Réflexive.
 
-**Les cours débuteront le mardi 2 octobre 2018 et se termineront le 25 juin 2019.**
+#### *QUATRIÈME SÉMINAIRE Samedi 7 Mars 2020 : Qi Gong Musical du Poumon Fei* ####
 
-**Programme des cours hebdomadaires du mardi**
-1. Le Qi Gong général d'ouverture et d'éveil du Qi
-2. Les 8 Trésors, les Ba Duan Jin et les marches Qi Gong
-3. Le Qi Gong Bouddhiste des « Mille mains Sacrées » jusque mi-mars 2019  
-Puis, le Qi Gong locomoteur des « Dix Huits Facettes » de mi mars à fin juin 2019.
+Le Poumon est *Le Maître du Souffle Respiratoire et Vital*. Il est chargé de distribuer l'Énergie de Défense en surface (au niveau de la peau et des muscles) et l'Énergie Nourricière en profondeur à travers les Canaux-Méridiens (Cerveau, viscères, articulations, organes des sens, tissus...). Il est *le bouclier des organes, le dais éclatant* qui doit maîtriser la tristesse et les revers de la vie.
 
-### *Séminaires de Qi Gong* ###
-- **1er séminaire : Le 1er décembre 2018** : Le Qi Gong d’équilibration Pulmonaire en musique
-- **2ème séminaire : Le 2 février 2019** : Le Qi Gong d’équilibration du Foie
-- **3ème séminaire : Le 23 mars 2019** : Le Qi Gong d’équilibration de la Rate-Pancréas
-- **4ème séminaire : Le 27 avril 2019** : Le Qi Gong d’équilibration du Rein Shen
-- **5ème séminaire : Le 15 juin 2019** : Le Qi Gong d’équilibration Cardio-vasculaires en musique
+#### *CINQUIÈME SÉMINAIRE Samedi 4 Avril 2020 : Qi Gong d'équilibration du Rein Shen* ####
 
-### *Participation* ###
+Le Rein (Racine du Yin et du Yang) contrôle la nutrition et le fonctionnement du Système Nerveux Central, de l'Hypophyse et des Surrénales, du Système Osseux et Cartilagineux, la Colonne Vertébrale. Il contrôle l'Appareil Génital, Reproducteur et Urinaire. Il doit maîtriser la peur et l'anxiété car il contrôle la force et la pugnacité. 
+
+### *Participation à l'enseignement du Qi Gong des cinq organes Yin les Zang* ###
 
 1. **Cours hebdomadaires de Qi Gong + 1 séminaire = 300 euros** pour l’année universitaire  
 Les personnes cotisant aux cours hebdomadaires peuvent participer aux 4 autres séminaires aux
@@ -77,7 +63,7 @@ conditions suivantes : **80 euros par séminaire ou 280 euros les 4 séminaires*
 2 séminaires = 170 euros  
 3 séminaires = 240 euros  
 4 séminaires = 300 euros  
-5 séminaires = 360 euros**  
+5 séminaires = 350 euros**  
 
 ### *Inscription* ###
 
